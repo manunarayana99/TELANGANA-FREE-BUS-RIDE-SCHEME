@@ -1,0 +1,1 @@
+To analyze the public response, usage patterns, and overall impact of the Telangana Mahalakshmi Free Bus Ride Scheme. This includes evaluating changes in travel frequency, user satisfaction, cost savings, and accessibility, particularly among women commuters, following the scheme’s implementation.
